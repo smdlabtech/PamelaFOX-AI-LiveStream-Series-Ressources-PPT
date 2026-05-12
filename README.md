@@ -1,1 +1,1 @@
-# PamelaFOX-AI-LiveStream-Series-Ressources-PPT
+# Microsoft AI LiveStreams Series PPT
